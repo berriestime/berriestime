@@ -7,5 +7,3 @@
 - 🔭 Now I'm studying at RS School Frontend Stage1.
 - 💬 Ask me about EdTech.
 - 📫 How to reach me: tg:@berriestime
-- 😄 Pronouns: she/her
-
